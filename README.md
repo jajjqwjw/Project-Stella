@@ -1,1 +1,1 @@
-COMMING SOOM at the end of 2031-32 school year
+Use my squid config to diy it
